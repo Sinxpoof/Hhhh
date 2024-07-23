@@ -1,5 +1,6 @@
 #hell
-![alt text]![Uploading image.jpeg…]()
+![alt text]!![image](https://github.com/user-attachments/assets/3c8617b9-c733-4e13-b943-1027d3e2b568)
+
 
 <br>
 He taught us about: Understanding the Human Being Briefing About “Self Body” Activities Of Self Body Response Of Self And Body Gross Misunderstanding Understanding Harmony In Self State Of Imagination
